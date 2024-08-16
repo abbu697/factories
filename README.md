@@ -20,3 +20,10 @@ gurogram      12HRS
 ![image](https://github.com/user-attachments/assets/69797872-a26a-4832-b081-6b5ce95cc3c1)
 
 
+Lastly there are factory on the market also. that can be taken in long and short. Also there is a separate charts for it.
+
+A picture from a site: internet
+
+![image](https://github.com/user-attachments/assets/1498bed5-884a-4d26-b86e-8e1b8b961126)
+
+
